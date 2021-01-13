@@ -1,0 +1,1 @@
+ingredents: chow,beans,onions,some oil,tomato ketchup,salt.

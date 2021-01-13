@@ -1,0 +1,2 @@
+At first some chow are broken into small pieces. Afterthat these chow pieces are boiled with  little  water  in  a  bowl for 5 minutes. Afterthat the water is drained out by a seive. Now some  chopped  fresh green beans, onions and  boiled  chow  are  fried in  a shallow  pan  with  some oil. Atlast  some  tomato ketchup  and salt are mixed in this. 
+Finally the chow is ready to serve in plate. 
